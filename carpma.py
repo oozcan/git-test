@@ -1,1 +1,2 @@
-çarpma
+
+vazgeçtim çıkarma
