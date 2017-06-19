@@ -1,2 +1,0 @@
-
-vazgeçtim çıkarma
